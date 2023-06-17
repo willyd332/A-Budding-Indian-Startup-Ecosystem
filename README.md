@@ -1,2 +1,1 @@
-# Innovation-Towards-Sustainability
-Final Project for India Today: Innovation &amp; Sustainability
+# A Budding Indian Startup Ecosystem: The 2016 Startup India Initiative
